@@ -1,0 +1,2 @@
+# Amponsah-Kubi
+Technology friendly
